@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-💻 Currently Working at Dallonses
+💻 Currently working at Dallonses
 
 🔭 Check my personal portfolio: www.jordirocasoler.com
 
